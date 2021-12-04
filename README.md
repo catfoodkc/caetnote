@@ -1,2 +1,4 @@
 # caetnote
 CAETNOTE IS DA BEST TEXT EDITER EVARRRR!!1!!! >:3
+
+IT NEEDS JAVA!! nyan :o
