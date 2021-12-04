@@ -1,0 +1,2 @@
+# caetnote
+CAETNOTE IS DA BEST TEXT EDITER EVARRRR!!1!!! >:3
